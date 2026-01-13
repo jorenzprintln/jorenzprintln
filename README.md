@@ -1,7 +1,7 @@
 # Hi there 👋
 
 **4th Year BSIT Student** at **Leyte Normal University**  
-**Tacloban City, Philippine**  
+**Tacloban City, Philippines**  
 
 ---
 
